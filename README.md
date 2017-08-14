@@ -1,2 +1,2 @@
 # Hello-world1
-2nd training session
+2nd trjhihaining session
